@@ -4,4 +4,4 @@ I am currently learning how to design websites.
 - 😄 Pronouns: she/her/hers
 - ⚡ Fun fact: I have a dog named luna.
 
-![octocat-1704394205509](https://github.com/Raniboston4/Raniboston4/assets/155670786/32dcf704-7a4f-44fa-8ddd-06b5d5006af6)
+![octocat2](https://github.com/Raniboston4/Raniboston4/assets/155670786/b57eda68-75a1-49a7-ab9f-c272d736e30b)
